@@ -2,7 +2,7 @@
 layout: default
 ---
 
-![]({{https://twentysix10.github.io}}/assets/photos/homeimage2.jpg)
+![]({{site.url}}/assets/photos/homeimage2.jpg)
 
 _"He was not at all sure he was doing the right thing, but he was sure he was doing what he wanted to do."_
 
