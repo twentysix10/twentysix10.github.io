@@ -10,7 +10,7 @@ excerpt: “Tereza listened with silent concentration, the kind few professors e
 
 ## [](#header-2)Attention
 
-“Tereza listened with silent concentration, the kind few professors ever glimpse on their students’ faces.” _- The Unbearable Lightness of Being_
+_“Tereza listened with silent concentration, the kind few professors ever glimpse on their students’ faces.”_ _- The Unbearable Lightness of Being_
 
 Have I ever paid that much attention?
 
