@@ -22,7 +22,7 @@ I'm waiting for my flight from San Francisco to Singapore. It's ironic that the 
 
 So do I smile when I land? Say "it's good to see you" to my family? because the truth is it's not. Not like this. I'm afraid for my family to see me cry; I'm afraid that they'll cry. But the truth is, it would be worse if they didn't.
 
-_Ong Chong Tiao, Dec 1923 - Jan 2017_
+_Ong Chong Tiao, Dec 1923 - Feb 2017_
 
 150217 19:49
 
