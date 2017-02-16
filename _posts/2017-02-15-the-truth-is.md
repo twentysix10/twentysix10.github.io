@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "The Truth Is,"
-date: 2017-02-15 22:03
+date: 2017-02-15 19:49
 published: true
 tags:
 - Musings
@@ -22,6 +22,6 @@ I'm waiting for my flight from San Francisco to Singapore. It's ironic that the 
 
 So do I smile when I land? Say "it's good to see you" to my family? because the truth is it's not. Not like this. I'm afraid for my family to see me cry; I'm afraid that they'll cry. But the truth is, it would be worse if they didn't.
 
-030217 22:03
+150217 19:49
 
 [back](/index)
