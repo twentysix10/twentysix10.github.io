@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Three Years Fifteen,"
+title: "Three Years Fifteen"
 date: 2017-03-26 19:49
 published: true
 tags:
