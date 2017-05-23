@@ -26,7 +26,7 @@ So someone asked me again recently why I think you're my forever. Asked me why I
 
 _Tokyo - 00:32 - streets are quiet outside_
 
-You said that you need someone who has the same passions that you do. And that is where you find your best friends. But passions change. Friends change. Values don't. A life partner doesn't. You don't think love alone is enough to make it work. I agree. It's love and value alignment we need. Just look at my parents.
+You said that you need someone who has the same passions that you do. And that is where you find your best friends. But passions change. Friends change. Values don't. A life partner doesn't. You don't think love alone is enough to make it work. I agree. It's love and value alignment and intellectual engagement we need. Just look at my parents.
 
 I've got a new crush on the same girl. I took you for granted before. I lost you twice and got you back once. I'll never beg anyone to love me but, if the little bird on my shoulder says "today is the day", then at least I got this out. It's not a life that I can love without you in it.
 
