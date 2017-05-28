@@ -32,7 +32,7 @@ I've got a new crush on the same girl. I took you for granted before. I lost you
 
 _Singapore - 280517 11:29_
 
-I suspect the truth is that in your mind, I could never compare to him. I was a way to numb the pain. It's true. You never lose your first love.
+I suspect the truth is that in your mind, I could never compare to him. I was a way to numb the pain. It's true, you never lose your first love.
 
 240517 00:45
 
