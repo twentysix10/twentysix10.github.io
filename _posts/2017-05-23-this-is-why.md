@@ -30,10 +30,6 @@ You said that you need someone who has the same passions that you do. And that i
 
 I've got a new crush on the same girl. I took you for granted before. I lost you twice and got you back once. I'll never beg anyone to love me but, if the little bird on my shoulder says "today is the day", then at least I got this out. It's not a life that I can love without you in it.
 
-_Singapore - 280517 11:29_
-
-I fear the truth is that in your mind, I could never compare to him. I was a way to numb the pain. It's true, you never lose your first love.
-
 240517 00:45
 
 [back](/index)
